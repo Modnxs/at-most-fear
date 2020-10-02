@@ -1,0 +1,2 @@
+# at-most-fear
+To conquer the world one must learn to walk with firm steps and to routinly and dilligently take the steps. Such a project can help one to organize their time in a way that seemingly overwhelming  great feats can be accomplished, you will know them for their deeds. No work is to great or to small. I hope my work is part of something that overcomes evil and has righteousness in the detail
